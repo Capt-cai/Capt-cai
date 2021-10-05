@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- I’m a student in a primary school in China
+- I’m a student in a  school in China
 - I'm 14 years old now
 - My website:sorry,I don't have a suitable server now.
 - Please forgive my poor English,haha.
