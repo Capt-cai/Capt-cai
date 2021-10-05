@@ -2,7 +2,7 @@
 - 👀 I’m interested in computer Program
 - I’m a 14 years student now
 - I’m in a middle school in china
-- I can html/ss
+- I can html/css
 -How can you contact me
 -Email caimouren"protonmail.com
 -tencent QQ:2271413792
