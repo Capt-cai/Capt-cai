@@ -2,7 +2,7 @@
 
 # 🤸 ஐ Capt-cai ஐ 
 - I’m a student at a middle school in China
-- I'm 14 years old now
+- I'm 16 years old now
 - My website:sorry,I don't have a suitable server now.
 - Please forgive my poor English,haha.
 # 📕 ❀ Languages ❀
@@ -21,8 +21,8 @@
 
 ```text
 - Email: caimouren@protonmail.com
-- Tencent QQ: 2271413792or1790281394
-- telegram :@caimoure
+- WeChat: Capt_cai111
+- telegram :@caimouren
 ```
 
 [![☬]
